@@ -1,4 +1,4 @@
-## Hi there 👋
+## Semuanya telah dipindah ke akun Lodi7 😄
 
 <!--
 **Lodigalang/Lodigalang** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
